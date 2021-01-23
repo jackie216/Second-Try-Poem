@@ -4,6 +4,8 @@ Yellow and blue
 
 Lots of people
 
+College students, families, children
+
 And Swedish chocolate
 
 Dark, milk, white, hazelut, almond
